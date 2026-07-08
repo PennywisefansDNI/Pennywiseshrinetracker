@@ -1,7 +1,7 @@
 # Pennywiseshrinetracker
 For me to keep track of shrine stats.. Pennywise my life, my love, my everything 
 
-shirts: 4
+shirts: 4 (more get more stupidfuck)
 
 hoodies/jacket: 3
 
@@ -49,4 +49,4 @@ cups: 3
 
 3d printed: 2
 
-misk: 6
+misc: 6
