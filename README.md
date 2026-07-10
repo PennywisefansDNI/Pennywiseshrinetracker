@@ -1,6 +1,8 @@
 # Pennywiseshrinetracker
 For me to keep track of shrine stats.. Pennywise my life, my love, my everything 
 
+i CANNOT count btw
+
 shirts: 4 (more get more stupidfuck)
 
 hoodies/jacket: 3
@@ -19,7 +21,7 @@ notebook/coloring book: 3
 
 general shrine pictures: HELL NO IM NOT COUNTING THAT 300+
 
-stickers: 41
+stickers: 71
 
 art(only displayed): 103
 
@@ -35,7 +37,7 @@ holographic card things: 3
 
 posters(medium n large): 25
 
-figure type things: 19 (get more fuckass)
+figure type things: 20 (get more fuckass)
 
 plushies: 10
 
